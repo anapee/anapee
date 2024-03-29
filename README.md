@@ -1,5 +1,5 @@
 - 👋 Hola, soy Ana Paula
-- 🌱 Amante del diseño UX/UI y las plantas
+- 🌻 Amante del diseño UX/UI y las plantas
 - 📚 Estudiante de Diseño en Comunicación Visual
 - 💌 anapaulacorteez@gmail.com
 
